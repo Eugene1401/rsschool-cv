@@ -1,7 +1,7 @@
 # Kryvtsov Ievgen
 ## Contacts
 ### Location: Dnipro, Ukraine
-### Phone: +38 095 330 92 99
+### Phone: +38 (095) 330 92 99
 ### Email: eugene1401@gmail.com
 ### GitHub: Eugene1401
 ## About Me
